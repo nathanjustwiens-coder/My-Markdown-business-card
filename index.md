@@ -10,4 +10,4 @@
 
 ---
 
-> I turn information into stories people want to explore.
+> I make complex ideas clear through thoughtful design.
